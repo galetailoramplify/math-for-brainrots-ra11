@@ -1,4 +1,4 @@
-#  
+#  Experience math for brainrots like never before with math for brainrots Script no-ban, the #1 Script. Includes silent aim and auto-sell for
 
 
 
